@@ -1,0 +1,2 @@
+# curriculojozieli
+curriculo
